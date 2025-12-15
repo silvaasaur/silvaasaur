@@ -1,16 +1,13 @@
-## Hi there 👋
-
-<!--
-**silvaasaur/silvaasaur** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">   
+ ‎<p align="center">
+  - <a href="https://pronouns.cc/@Sharooh">prns.cc</a> -  
+   <a href="https://sharooh.atabook.org/">atabook </a>  -
+   <a href="https://open.spotify.com/user/31ie2jrxrsiot5akk64mq6ixot3q">my spotify </a> -  
+   <a href="https://colormytree.me/2025/01KB8S8H088QWPHAPK5V436QP1">my tree🎄! </a>  -
+    ‎ ‎ ‎ ‎‎<p align="center">
+    ୨୧ 
+      
+  ‎ 
+  ‎ ‎ ‎ ‎‎<p align="center">
+![tumblr_cfb26d4bd6f7d18868a6bd5a2aa86013_ab917e33_2048](https://github.com/user-attachments/assets/f24ded53-2094-4903-8e09-bc1fd792c220)
+୨୧ ic: breezybash on tumblr
